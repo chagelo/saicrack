@@ -1,5 +1,10 @@
+# Chinese version crack
+
+1. https://piv.ink/sai12/
+
+
 # saicrack
-PaintTool SAI Software Crack
+PaintTool SAI Software Crack for official
 
 
 If you want to download the latest software package, please go to the official website to download.
